@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Kulein
 - 👀 I’m interested in Cyber Security and Programming
 - 🌱 I’m currently learning ethical hacking
-- 🤔 I’m looking for help with CyberSecurity and Programming
+- 🤔 I’m looking for help with my interests
 - 📫 How to reach me kuleinahmet2@gmail.com
 
 I continue to improve myself in the field of cyber security with the +3 years of experience I have spent in the sector and the trainings I have received. 
